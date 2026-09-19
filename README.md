@@ -4,4 +4,4 @@ Every question is grounded in clinical psychology, especially on mental skills l
 
 Thanks to the team @UA for your psychological expertise!
 
-*Find out more about Unlocking ADHD here: unlockingadhd.org.sg
+*Unlocking ADHD is a Singapore-based charity dedicated to raising awareness and providing resources around ADHD https://unlockingadhd.org.sg/
